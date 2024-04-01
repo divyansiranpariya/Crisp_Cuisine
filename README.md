@@ -48,14 +48,15 @@ https://github.com/divyansiranpariya/Crisp_Cuisine/assets/154776848/90df01e2-30e
 
 ## Screensorts
 
-![s1](https://github.com/divyansiranpariya/Crisp_Cuisine/assets/154776848/97c77603-d3f7-40bc-9617-b7bb33e1e383)
 
-![fs2](https://github.com/divyansiranpariya/Crisp_Cuisine/assets/154776848/0fd54248-d469-4fbf-8a7f-b3f9ae6487bc)
-![s3](https://github.com/divyansiranpariya/Crisp_Cuisine/assets/154776848/4b7ee819-454f-4412-ace3-54f0a06a2901)
-![s4](https://github.com/divyansiranpariya/Crisp_Cuisine/assets/154776848/4a2f7b86-3bd5-4![s5](https://github.com/divyansiranpariya/Crisp_Cuisine/assets/154776848/6ddbf77d-990b-4860-8d93-93165c60f092)
-![s5](https://github.com/divyansiranpariya/Crisp_Cuisine/assets/154776848/056763d5-767f-484d-9a64-12f60ed98ba4)
+![s1](https://github.com/divyansiranpariya/Crisp_Cuisine/assets/154776848/d5f3db23-8753-43ca-9281-e89ce5ba9ef9)
+![fs2](https://github.com/divyansiranpariya/Crisp_Cuisine/assets/154776848/6739f05e-2c0e-4dc4-8008-28f3e5a9c60d)
 
-0b0-8855-028b7cab5b13)
-![s6](https://github.com/divyansiranpariya/Crisp_Cuisine/assets/154776848/982a3b1f-2192-4fc0-9d83-766aa451648d)
-![Uploading s![sl](https://github.com/divyansiranpariya/Crisp_Cuisine/assets/154776848/ae8575de-3912-4952-ab98-97bc32a4661f)
-6.png…]()
+![s3](https://github.com/divyansiranpariya/Crisp_Cuisine/assets/154776848/a5be2ec2-d17c-4320-92e8-7b700738b89e)
+![s4](https://github.com/divyansiranpariya/Crisp_Cuisine/assets/154776848/51135a73-609c-44ca-b9dd-928439fee111)
+
+
+![s5](https://github.com/divyansiranpariya/Crisp_Cuisine/assets/154776848/7315fa17-6b1c-45e2-8274-9741b41593f6)
+![s6](https://github.com/divyansiranpariya/Crisp_Cuisine/assets/154776848/f4fbe4da-ccb3-48c8-b46b-1fb8aeec5999)
+
+![sl](https://github.com/divyansiranpariya/Crisp_Cuisine/assets/154776848/a90b9992-7f6d-480e-9983-20adc77ad9d2)
