@@ -1,4 +1,4 @@
-![s6](https://github.com/divyansiranpariya/Crisp_Cuisine/assets/154776848/982a3b1f-2192-4fc0-9d83-766aa451648d)# CrispCuisine
+# CrispCuisine
 
 ## Clone the repository:
 
@@ -53,6 +53,9 @@ https://github.com/divyansiranpariya/Crisp_Cuisine/assets/154776848/90df01e2-30e
 ![fs2](https://github.com/divyansiranpariya/Crisp_Cuisine/assets/154776848/0fd54248-d469-4fbf-8a7f-b3f9ae6487bc)
 ![s3](https://github.com/divyansiranpariya/Crisp_Cuisine/assets/154776848/4b7ee819-454f-4412-ace3-54f0a06a2901)
 ![s4](https://github.com/divyansiranpariya/Crisp_Cuisine/assets/154776848/4a2f7b86-3bd5-4![s5](https://github.com/divyansiranpariya/Crisp_Cuisine/assets/154776848/6ddbf77d-990b-4860-8d93-93165c60f092)
+![s5](https://github.com/divyansiranpariya/Crisp_Cuisine/assets/154776848/056763d5-767f-484d-9a64-12f60ed98ba4)
+
 0b0-8855-028b7cab5b13)
+![s6](https://github.com/divyansiranpariya/Crisp_Cuisine/assets/154776848/982a3b1f-2192-4fc0-9d83-766aa451648d)
 ![Uploading s![sl](https://github.com/divyansiranpariya/Crisp_Cuisine/assets/154776848/ae8575de-3912-4952-ab98-97bc32a4661f)
 6.png…]()
