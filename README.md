@@ -42,7 +42,10 @@ Contributions are welcome! If you find any issues or have suggestions for improv
 
 
 
-https://github.com/divyansiranpariya/Crisp_Cuisine/assets/154776848/90df01e2-30e9-4a18-adf3-90a25c97ad7a
+https://github.com/divyansiranpariya/Crisp_Cuisine/assets/154776848/caccb86a-669c-4961-92df-98555e1b5a1c
+
+
+
 
 
 
